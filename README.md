@@ -1,4 +1,4 @@
-# 08-24-22
+# 08-24-2022
 
 Previous [Diary](https://aryanmangla23.github.io/08-23-2022/)
 
